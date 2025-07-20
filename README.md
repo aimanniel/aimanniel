@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi, I'm Aiman Daniel
 
  <h3>💻 GitHub Profile Stats</h3>
 
